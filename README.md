@@ -1,1 +1,0 @@
-# thaynara-pereira
